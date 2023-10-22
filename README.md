@@ -25,4 +25,4 @@ ALSO I AM THINKING OF STARTING A PATREON CHANNEL WHERE PATREONS GET ACCESS TO AL
 
 Links
 =====
-Complete project download link: https://drive.google.com/uc?id=1mNWjttma4gZkL77ndcy-31qTXh-c0Hus&export=download
+Complete project download available for my Patrons - Developer+ tiers! 
